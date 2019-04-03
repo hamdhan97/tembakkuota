@@ -1,0 +1,2 @@
+# tembakkuota
+TEAM CYBER TEGAL
